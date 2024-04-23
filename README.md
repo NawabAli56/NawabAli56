@@ -2,7 +2,7 @@
 - 👀 I’m Trading crypto,stocks,commodites,indices 
 - 🌱 I’m ccurrently trading as a day trader Using smart money concept with combination of ICT concept
 - 💞️ I’m looking to collobrate with Best traders and investors to learn from them as a stufent, already had 6 years of trading experience in the financial markets.
-- 📫 you people can easily contact me here if anyone need mu help Related any Trading advive.
+- 📫 you people can easily contact me here if anyone need mu help Related any Trading advice.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
